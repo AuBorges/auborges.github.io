@@ -1,11 +1,11 @@
 ## Dhal Fry Recipe
 
-# INGREDIENTS (1 CUP = 240ML )
+**INGREDIENTS (1 CUP = 240ML )**
 *	1 cup toor dhal or arhar dal or split pigeon peas (or ¾ cup toor dal + ¼ cup moong dal)
 *	2 to 2 ¼ cups water (use more if cooking in pot)
 *	Salt as needed
 
-# For tempering dal fry
+**For tempering dal fry**
 *	1 ½ tbsps. ghee or oil or butter
 *	½ to ¾ tsp cumin or jeera
 *	½ tsp mustard (optional)
@@ -21,12 +21,12 @@
 *	½ tsp Kasuri methi crushed or dried fenugreek leaves
 *	handful coriander leaves chopped finely
 
-# Preparation
+**Preparation**
 1.	Wash toor dal a few times until water runs clear.
 2.	Add water to the pot or pressure cooker along with dal. 
 3.	Cook on a medium heat for 2 whistles. If making in a pot add more water as    needed and cook until soft and mushy.
 
-# How to make dal fry
+**How to make dal fry**
 1.	Heat a pan with ghee, oil or butter. Add mustard, cumin and red chili if using.   When they begin to splutter, add hing.
 2.	Next add onions and green chilies. Sauté until the onions turn golden.
 3.	Add ginger garlic paste and fry until the raw smell goes off.
